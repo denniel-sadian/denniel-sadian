@@ -2,7 +2,7 @@
 - 👀 I’m interested in sleeping late.
 - 🌱 I’m currently learning how to sleep late even more.
 - 💞️ I’m looking to collaborate on someone who knows how to sleep late.
-- 📫 How to reach me ... you sure about that?
+- 📫 How to reach me ... you can email me here sadiandenniel@gmail.com, or you can just message me on linkedin.
 
 <!---
 denniel-sadian/denniel-sadian is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
